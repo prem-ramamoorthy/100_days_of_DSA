@@ -76,6 +76,6 @@ Follow my journey by checking the **commit history** !
 
 ---
 
-> "Consistency is what transforms average into excellence." — #DrViswanathanChallenge
+> "Consistency is what transforms average into excellence." — Tony Robbins
 
 ---
